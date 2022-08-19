@@ -1,2 +1,2 @@
 # Firstproject
-//please just contribute your time to next into our next version//
+//please just contribute your time to get into our next version//
